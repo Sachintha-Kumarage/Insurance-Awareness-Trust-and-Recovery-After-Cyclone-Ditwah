@@ -1,0 +1,2 @@
+# Insurance-Awareness-Trust-and-Recovery-After-Cyclone-Ditwah
+explores how affected people experienced insurance before, during, and after the disaster. Specially whether they had cover, understood their policies, could file claims, and felt fairly treated. This is qualitative because it focuses on experiences, perceptions, barriers, and meanings rather than calculating claim ratios or loss estimates.
